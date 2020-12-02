@@ -1,2 +1,2 @@
-The Recepie to make the rice pudding is given below:
+The Recipie to make the rice pudding is given below:
 Boil the milk and add rice to it. Stir it continuously for 30-35 min at medium flame. As soon as the rice gets soften add sugar to it. Stir it as the sugar is dissolved completely and add the dry fruits to the pudding. Last but not the least add a few saffron in the pudding. Now the pudding is ready to be served and you can also eat it after cooling it.
