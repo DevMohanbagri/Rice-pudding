@@ -1,1 +1,1 @@
-This is the recipie of Indian sweet dish that is kheer or rice pudding.
+This is the recipie of Indian sweet dish that is oftenly called kheer or rice pudding.
